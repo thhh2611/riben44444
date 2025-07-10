@@ -22,4 +22,4 @@
 
 现在就点击任意入口，立即进入你专属的无码日本AV高清世界！
 
-<span style="display:none;">[Canonical link]  (  ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/thhh2611/riben44444 ）</span> 
